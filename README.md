@@ -28,24 +28,7 @@ I will be Software Developer from thai
 
 
 
-
-
-
-
-
-
-
-
-![kratos-heart](https://github.com/user-attachments/assets/e296d260-506a-4780-b48a-3efa3b8543bd)
-
-
-
-
-
-
-
-
-
+![kratos-heart](https://github.com/user-attachments/assets/005fe1e3-9c36-4f27-8063-d8272a1bc8a9)
 
 
 
